@@ -4,5 +4,5 @@ y siempre me ha fascinado. En el futuro, me gustaría trabajar en una empresa co
 experiencia en este ámbito.
 
 
-![Uploading pexels-joshsorenson-1714204.jpg…](/img/Uploading pexels-joshsorenson-1714204.jpg)
+![Uploading pexels-joshsorenson-1714204.jpg…](/img/Uploading-pexels-joshsorenson-1714204.jpg)
 
